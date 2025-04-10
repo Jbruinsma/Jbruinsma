@@ -1,0 +1,5 @@
+- Hey, I'm Justin Bruinsma. 
+- I’m an undergraduate at New York Institute of Technology studying Computer Science.
+- I have an interest in financial markets, fintech and finance systems.
+- You can reach me through my personal website: https://justinabruinsma.com/, my LinkedIn: https://www.linkedin.com/in/justin-bruinsma-669816272, or my email: justinabruinsma@gmail.com.
+- I'm always looking to learn new skills and be a better develper and improve myself. 
