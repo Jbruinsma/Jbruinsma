@@ -4,10 +4,10 @@ I'm constantly exploring ways to grow as a developer, sharpen my skills, and pus
 
 You can connect with me through:
 
-    🌐 https://justinabruinsma.com/
+    Personal Website: https://justinabruinsma.com/
 
-    💼 https://www.linkedin.com/in/justin-bruinsma-669816272
+    LinkedIn: https://www.linkedin.com/in/justin-bruinsma-669816272
 
-    📧 Email: justinabruinsma@gmail.com
+    Email: justinabruinsma@gmail.com
 
 I’m always open to learning opportunities, collaborations, and challenges that help me level up.
